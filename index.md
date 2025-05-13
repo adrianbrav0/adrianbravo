@@ -18,7 +18,7 @@ Barquisimeto, Lara, Venezuela
 
 ## Idiomas
 
-- Inglés (EFSET 70 intermediate CEFR B1 between B2 )
+- Inglés (EFSET 52 B2 UPPER INTERMEDIATE CEFR)
 - Español
 
 ## Certificaciones
