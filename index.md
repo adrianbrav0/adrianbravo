@@ -8,7 +8,7 @@ Barquisimeto, Lara, Venezuela
 - Urb el manzano, calle lomas 2, casa 23-B
 - +58 424 2232425 (Mobile)
 - adrian.bravo@gmail.com
-- [LinkedIn Adrián Bravo](www.linkedin.com/in/adrian-bravo-4684a3170)
+- [LinkedIn Adrián Bravo](https://www.linkedin.com/in/adrian-bravo-4684a3170)
 
 ## Aptitudes principales
 
